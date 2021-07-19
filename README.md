@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ch1tachok
+- 👀 I’m interested in play Fortnite and Roblox
+- 🌱 I’m currently learning how to become pro in Roblox
